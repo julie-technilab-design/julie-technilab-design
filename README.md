@@ -6,7 +6,7 @@
 - 🌱 I’m currently discovering the (for me new) universe of coding
 - I'm coming from Philosophy and Ethics
 - I'm specialized in human tought & thinking algorithms (and also decision algorithms to find joy and happiness)
-- With my husband I help schools & community to change their living environment
+- With my husband I help schools & communities to upgrade their living environment with human, nature and technology synergy
 -   We need to developp applications to help our communities to organize and thrive
 - 💞️ I’m looking to learn and share with others
 - And also empowerment and autonomy
