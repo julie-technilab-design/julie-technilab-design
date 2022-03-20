@@ -2,9 +2,12 @@
 - 👀 I’m interested in learning and developp coding skills
 - I'm doing that with 4 kids and beside my teaching job
 - As a women I hope to open new possibilities 
+- To make a better world as my mission and passion
 - 🌱 I’m currently discovering the (for me new) universe of coding
 - I'm coming from Philosophy and Ethics
 - I'm specialized in human tought & thinking algorithms (and also decision algorithms to find joy and happiness)
+- With my husband I help schools & community to change their living environment
+-   We need to developp applications to help our communities to organize and thrive
 - 💞️ I’m looking to learn and share with others
 - And also empowerment and autonomy
 - As a conscious begginner I have different perspectives and visions to share
