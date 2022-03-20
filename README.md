@@ -12,7 +12,7 @@
 - And also empowerment and autonomy
 - As a conscious begginner I have different perspectives and visions to share
 - 📫 How to reach me : info@technilab.design
-- I speek french but understand english
+- You can also visit technilab.org (in french for now but you can use Google traduction :) 
 
 <!---
 julie-technilab-design/julie-technilab-design is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
